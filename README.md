@@ -1,2 +1,2 @@
 # music_resume
-My Music Resume
+My music exploits over the years on flute and oboe, and hopefully bassoon soon!
